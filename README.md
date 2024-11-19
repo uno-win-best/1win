@@ -1,5 +1,5 @@
 <h2>¿Qué Hace a 1Win la Opción Perfecta?</h2>
-<p><a href="https://cine-arte.net/">Олимп </a> no es solo una plataforma de apuestas; es un ecosistema diseñado para ofrecer innovación, entretenimiento ilimitado y opciones adaptadas a todos los niveles. Desde novatos hasta expertos, 1Win tiene algo único que ofrecer. Descubre por qué 1Win destaca frente a la competencia.</p>
+<p><a href="https://cine-arte.net/">1win </a> no es solo una plataforma de apuestas; es un ecosistema diseñado para ofrecer innovación, entretenimiento ilimitado y opciones adaptadas a todos los niveles. Desde novatos hasta expertos, 1Win tiene algo único que ofrecer. Descubre por qué 1Win destaca frente a la competencia.</p>
 
 <h3>Entretenimiento Variado en 1Win</h3>
 <p>En 1Win disfrutarás de:</p>
